@@ -1,4 +1,4 @@
-### Thanks for landing on my page, enjoy your stay :) 
+## Thanks for landing on my page, enjoy your stay :) 
 
 ## A born and raised Maryland 17 year old developer 😎
 
