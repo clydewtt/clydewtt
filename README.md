@@ -1,6 +1,6 @@
 ## Thanks for landing on my page, enjoy your stay :) 
 
-## A born and raised Maryland 17 year old developer 😎
+## Computer Science Major @ Morgan State University c/o 2026 😎
 
 - 🔭 2nd place State winner of Johns Hopkins APL MESA Mobile App Competition
 - 🌱 I’m currently learning everything and more!
