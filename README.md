@@ -7,7 +7,7 @@
 
 ### Computer Science Major @ Morgan State University c/o 2025 😎
 
-- 🔭 Ex-Credit Karma SWE Intern
+- 🔭 Ex-Credit Karma & Bloomberg SWE Intern
 - 🌱 I’m currently learning everything and more!
 - 👯 Looking to expand my skills and knowledge, I could be working with you! 
 - 🥅 Goal: Keep on growing with those around me!
